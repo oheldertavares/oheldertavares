@@ -1,6 +1,8 @@
 # ☁️ Bem-vindo(a) ao meu GITHUB  😊 ☁️  
 
 
+🧠 Aprendendo, criando, compartilhando.
+
 ---
 
 ## 👨‍🎓 Sobre mim
